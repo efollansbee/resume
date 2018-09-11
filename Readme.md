@@ -3,6 +3,7 @@
 ![Spirit Animal](IMG_4841.JPG)
 
 ## Education
+- [South Seattle Community College Co-op Preschool](http://westseattlepreschools.org/)
 - [Arbor Heights Elementary ](https://arborheightses.seattleschools.org/ "Go Seahawks")
 - [Denny International Middle School](https://dennyms.seattleschools.org/ "Go Dolphins")
 - [Chief Sealth International High School](https://chiefsealthhs.seattleschools.org/ "Go Seahawks")
